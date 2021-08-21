@@ -13,12 +13,12 @@ email: leandro@257consultoria.com.br
 ou pelo 
 Whatsapp: (69) 99257-6048
 
-----------------------------------------------------------------------------------------------------------
+
 ESTE TEMPLATE FOI DISPOLIBILIZADO GRATUITAMENTE E LEVOU HORAS DE PESQUISA, DESENVOLVIMENTO E TRABALHO.
 SE ELE FOI ÚTIL PARA VOCÊ, CONSIDERE FAZER UMA DOAÇÃO, ELA ME INCENTIVA A CONTINUAR CRIANDO NOVAS VERSÕES.
 
->>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>     PIX - 69992576048 (Celular)     <<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<
-----------------------------------------------------------------------------------------------------------
+PIX - 69992576048 (Celular) 
+
 
 
 Requisitos:
